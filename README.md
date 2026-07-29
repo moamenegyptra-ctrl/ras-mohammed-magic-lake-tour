@@ -1,5 +1,6 @@
 # 🌊 Ras Mohammed & Magic Lake: An Unforgettable Day from Sharm El Sheikh
 
+<img width="573" height="429" alt="image" src="https://github.com/user-attachments/assets/55665e3a-dcd8-4df7-a17f-8b295133e339" />
 
 
 If you're staying in Sharm El Sheikh and looking for an exciting day away from the resort, a trip to Ras Mohammed National Park and Magic Lake is a fantastic choice.
